@@ -1,1 +1,1 @@
-![gay](https://media.discordapp.net/attachments/677210289829183498/1229561266058825880/gifmaker_me_1.gif?ex=66302129&is=661dac29&hm=ed21f27fd46dbb73a91b44e7337b4437e87b16f53a7cd5c0e70af41ca066af8c&)
+![cool](https://media.discordapp.net/attachments/677210289829183498/1229562852763893780/20240122_020447.jpg?ex=663022a4&is=661dada4&hm=bbfa21dffaf6c62c65186d1cc7d7ca245548810a035ec50d0b6b59dd4b4668a4&) perfcy jcakson
