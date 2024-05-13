@@ -1,3 +1,3 @@
 
- ![1](https://media.discordapp.net/attachments/804088738313011250/1238912437999374347/ea033e7fc3f8c0ca73e869efd9039a8d.jpg?ex=6641029f&is=663fb11f&hm=8ab14bb30a4000920b3a34eb1f128adbec34ec6e19c1bc354c45c4692b3afb8c&) 
+ ![1](https://media.discordapp.net/attachments/677210289829183498/1239383631366062100/20230424_020015.jpg?ex=6642b974&is=664167f4&hm=91e738bcf5a190c7b43600f28098066990841c28b72de0605633b91641ccfa69&) me cursing all of you to be damned for eternity 
  
